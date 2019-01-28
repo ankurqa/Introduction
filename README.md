@@ -1,7 +1,7 @@
 
 # Resume
 **Ankur Mangal**</br>
-**Contact: +919024040756**</br>
+**Contact: +91 9024040756**</br>
 **LinkedIn:** linkedin.com/in/ankurmangal24</br>
 **Mail Id:** mangalankur15@stu.upes.ac.in</br>
 # CAREER OBJECTIVE
